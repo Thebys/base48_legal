@@ -76,7 +76,9 @@
 
    b) platit ve stanovené lhůtě členské příspěvky,
 
-   c) oznámit změny údajů vedených v seznamu členů spolku.
+   c) oznámit změny údajů vedených v seznamu členů spolku,
+
+   d) odstranit po skončení členství svoje věci z prostor spolku, neučiní-li tak, mohou propadnout spolku (podrobnosti určí předpis).
 
 3. Člen s pozastaveným členstvím:
 
